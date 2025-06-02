@@ -2,7 +2,7 @@
 # Global Rice Bran Wax Industry Outlook (2023–2031)
 
 ## Market Overview
-The global rice bran wax market was valued at **US$ 408.6 million in 2022** and is projected to reach **US$ 736.6 million by 2031**, expanding at a **CAGR of 6.8%** from 2023 to 2031.
+The global [rice bran wax market](https://www.transparencymarketresearch.com/rice-bran-wax-market.html) was valued at **US$ 408.6 million in 2022** and is projected to reach **US$ 736.6 million by 2031**, expanding at a **CAGR of 6.8%** from 2023 to 2031.
 
 Rice bran wax is extracted from crude rice bran oil during milling and is known for its high melting point, water resistance, and oxidative stability. These properties have contributed to its growing use in multiple sectors including food and beverage, cosmetics and personal care, pharmaceuticals, coatings, and industrial applications.
 
